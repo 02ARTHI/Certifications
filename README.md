@@ -1,4 +1,4 @@
-# CERTIFICATIONS
+# CERTIFICATIONS 
 
 ![Reaccrediation program](https://github.com/user-attachments/assets/de572fe8-a195-49d8-aa9c-452bb391acbd)
 
